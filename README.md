@@ -1,25 +1,25 @@
-## Heyy!!!🐬
+## Heyy!!! 
 
 <img width="768" height="51" alt="17869935105731772345105512823004" src="https://github.com/user-attachments/assets/d1ed8104-b2f5-4db2-b445-085e334d4171" />
 
 *factss:*
-**꒰ঌ ໒꒱ - wuyang/Juno main,🐡** 
+**꒰ঌ ໒꒱ - wuyang/Juno main🦈** 
 
 
- || minor + enfp, (sign za straw) 🐚
+ || minor + enfp, (sign za straw) ₊˚⊹ᰔ🐚
  
- || int freely! Im afk sm so I might not see whisp 🐙
+ || int freely! Im afk sm so I might not see whisp 𓂃 𓈒𓏸‪‪ 𓇼🐙
  
- ||YES I'm joyful YES I'm  pure kindness 🐟
+ ||YES I'm joyful YES I'm  pure kindness 🐟.𖥔 ݁ ˖
  
- || c+h accepted!! just please don't RP. 🐠
+ || c+h accepted!! just please don't RP. 🐠⋆˚࿔
  <img width="370" height="215" alt="17869934801741859373408634514638" src="https://github.com/user-attachments/assets/d7d34003-8bc4-4855-b71f-55cdb3cd2db6" />
 
- || she / her , Ari / el 🌀🎣
+ ||𓏵‧₊˚ ┊ she / her , Ari / el 🌀🎣
 
   <img width="370" height="215" alt="17869934618521455158862992377332" src="https://github.com/user-attachments/assets/bff3685b-95b5-499e-8224-1cd2f9bf86e2" />
 
-   [straw](https://youbettersignthis.straw.page/)🔱 [ata](https://doyoulikeyourtacoshardorsoft.atabook.org)⚓
+  𝄞 [straw](https://youbettersignthis.straw.page/)🔱 [ata](https://doyoulikeyourtacoshardorsoft.atabook.org)⚓
   
   
   
