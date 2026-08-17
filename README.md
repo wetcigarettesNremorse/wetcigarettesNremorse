@@ -1,4 +1,4 @@
-## Heyy!!! 🌊 
+##  🌊 
 
 <img width="374" height="211" alt="17870023390881531736256399643724" src="https://github.com/user-attachments/assets/7c5d3bac-cb2c-4bf4-8de4-18fef4e8cc71" />
  
@@ -17,7 +17,7 @@
  
  || c+h accepted!! just please don't RP. 🐠⋆˚࿔
 
- || YES I do still get scared of impressions in a pony game ㅤ🐳
+ || YES you can become my oomf YES be my friend pls lawdd 🐳
 
 <img width="374" height="374" alt="17870024466558750889283306777412" src="https://github.com/user-attachments/assets/dba0934c-3d19-4b4f-a7eb-e37421f8a82f" />
 
