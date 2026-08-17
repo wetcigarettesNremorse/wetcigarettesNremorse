@@ -22,7 +22,7 @@
 
   <img width="370" height="215" alt="17869934618521455158862992377332" src="https://github.com/user-attachments/assets/bff3685b-95b5-499e-8224-1cd2f9bf86e2" />
 
-  𝄞 [straw](https://youbettersignthis.straw.page/)🔱 [ata](https://doyoulikeyourtacoshardorsoft.atabook.org)⚓ 
+  𝄞 [straw](https://youbettersignthis.straw.page/)🔱 [ata](https://doyoulikeyourtacoshardorsoft.atabook.org)⚓ <img width="99" height="56" alt="17869955599471374475763450822061" src="https://github.com/user-attachments/assets/90cb17a8-6999-4d54-b592-5a9a23a745eb" /> 
 
   
   
