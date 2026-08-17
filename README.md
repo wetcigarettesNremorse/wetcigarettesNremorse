@@ -1,6 +1,7 @@
 ## Heyy!!! 🌊 
 
-<img width="768" height="51" alt="17869935105731772345105512823004" src="https://github.com/user-attachments/assets/d1ed8104-b2f5-4db2-b445-085e334d4171" />
+<img width="725" height="267" alt="17870014558892760845255712563828" src="https://github.com/user-attachments/assets/781c40cf-1812-4b0e-973e-a796365bce14" />
+
 
 **꒰ঌ ໒꒱ - ᴡᴜʏᴀɴɢ/ᴊᴜɴᴏ ᴍᴀɪɴ🦈** 
 
@@ -32,3 +33,7 @@
   
 
 <img width="1280" height="123" alt="17869937999644816975762390537254" src="https://github.com/user-attachments/assets/d52b3956-aa4e-4ead-9c9e-ae499804b223" />
+
+
+<img width="768" height="51" alt="17869935105731772345105512823004" src="https://github.com/user-attachments/assets/d1ed8104-b2f5-4db2-b445-085e334d4171" />
+
