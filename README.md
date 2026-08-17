@@ -1,6 +1,7 @@
 ## Heyy!!! 🌊 
 
-<img width="725" height="267" alt="17870014558892760845255712563828" src="https://github.com/user-attachments/assets/781c40cf-1812-4b0e-973e-a796365bce14" />
+<img width="725" height="267" alt="1787001644340189982425514266466" src="https://github.com/user-attachments/assets/75b077a3-12cd-4e7b-88eb-729450ffee6f" />
+
 
 
 **꒰ঌ ໒꒱ - ᴡᴜʏᴀɴɢ/ᴊᴜɴᴏ ᴍᴀɪɴ🦈** 
