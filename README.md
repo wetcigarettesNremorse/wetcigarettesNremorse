@@ -18,7 +18,6 @@
  || she / her , Ari / el
 
   <img width="370" height="215" alt="17869934618521455158862992377332" src="https://github.com/user-attachments/assets/bff3685b-95b5-499e-8224-1cd2f9bf86e2" />
-  [ata](https://doyoulikeyourtacoshardorsoft.atabook.org/?page=1) [straw](https://youbettersignthis.straw.page/)
   
 
 <img width="1280" height="123" alt="17869937999644816975762390537254" src="https://github.com/user-attachments/assets/d52b3956-aa4e-4ead-9c9e-ae499804b223" />
