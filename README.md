@@ -16,7 +16,7 @@
  || YES I do still get scared of impressions in a pony game ㅤ♡🌊
  <img width="370" height="215" alt="17869934801741859373408634514638" src="https://github.com/user-attachments/assets/d7d34003-8bc4-4855-b71f-55cdb3cd2db6" />
 
- ||$\\color{blue}{┊ she / her , Ari / el 🌀🎣}$ 
+ ||$\\color{blue}{she\|\her\,\Ari\|el\🌀🎣}$ 
  || ADDICTED to Overwatch (exports is calling me omg) <img width="150" height="20" alt="17869954797637217009657916360671" src="https://github.com/user-attachments/assets/5c454ff3-ac72-45af-bae9-0bf29e3a3f80" /> 
 
 
