@@ -18,7 +18,7 @@
 
  ||𓏵‧₊˚ ┊ she / her , Ari / el 🌀🎣
  || ADDICTED to Overwatch (exports is calling me omg) <img width="150" height="20" alt="17869954797637217009657916360671" src="https://github.com/user-attachments/assets/5c454ff3-ac72-45af-bae9-0bf29e3a3f80" /> 
-$\\color{red}{wip}$
+$\\color{blue}{wip}$
 
   <img width="370" height="215" alt="17869934618521455158862992377332" src="https://github.com/user-attachments/assets/bff3685b-95b5-499e-8224-1cd2f9bf86e2" />
 
