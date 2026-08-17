@@ -6,8 +6,8 @@
 
 **꒰ঌ ໒꒱ - ᴡᴜʏᴀɴɢ/ᴊᴜɴᴏ ᴍᴀɪɴ🦈** 
 
-
- || *minor* + enfp,  ₊˚⊹ᰔ🐚
+      ❝𝖥𝗅𝖺𝗌𝗁 𝖿𝗅𝗈𝗈𝖽!❞
+ || minor + enfp,  ₊˚⊹ᰔ🐚
 
 <img width="370" height="215" alt="17869934801741859373408634514638" src="https://github.com/user-attachments/assets/d7d34003-8bc4-4855-b71f-55cdb3cd2db6" /> 
 
@@ -26,7 +26,7 @@
  
  || ADDICTED to Overwatch (esports is calling me omg) <img width="150" height="20" alt="17869954797637217009657916360671" src="https://github.com/user-attachments/assets/5c454ff3-ac72-45af-bae9-0bf29e3a3f80" /> 
 
-
+<span style="color: #2596be;">*❝ʀᴇᴠᴇʀꜱᴇ ᴛʜᴇ ᴛɪᴅᴇ!❞*
 
   <img width="370" height="215" alt="17869934618521455158862992377332" src="https://github.com/user-attachments/assets/bff3685b-95b5-499e-8224-1cd2f9bf86e2" />
 
@@ -38,6 +38,7 @@
   
 
 <img width="1280" height="123" alt="17869937999644816975762390537254" src="https://github.com/user-attachments/assets/d52b3956-aa4e-4ead-9c9e-ae499804b223" />
+<img width="498" height="225" alt="17870027616867393486224035087328" src="https://github.com/user-attachments/assets/18a0286c-32a3-4ea7-82db-95b111edb72e" />
 
 
 <img width="768" height="51" alt="17869935105731772345105512823004" src="https://github.com/user-attachments/assets/d1ed8104-b2f5-4db2-b445-085e334d4171" />
