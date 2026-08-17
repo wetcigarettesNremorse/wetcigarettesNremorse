@@ -1,4 +1,4 @@
-## Heyy!!! 
+## Heyy!!! 🌊 
 
 <img width="768" height="51" alt="17869935105731772345105512823004" src="https://github.com/user-attachments/assets/d1ed8104-b2f5-4db2-b445-085e334d4171" />
 
@@ -13,7 +13,7 @@
  
  || c+h accepted!! just please don't RP. 🐠⋆˚࿔
 
- || YES I do still get scared of impressions in a pony game ㅤ♡🌊
+ || YES I do still get scared of impressions in a pony game ㅤ🐳
  <img width="370" height="215" alt="17869934801741859373408634514638" src="https://github.com/user-attachments/assets/d7d34003-8bc4-4855-b71f-55cdb3cd2db6" />
 
  ||  Ari / el , she / her 🌀🎣
