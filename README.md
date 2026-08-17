@@ -7,7 +7,7 @@
 
  || *minor* + enfp,  ₊˚⊹ᰔ🐚
  
- || int freely! Im afk sm so I might not see whisp 𓂃 𓈒𓏸‪‪ 𓇼🐙
+ || ! int freely! Im afk sm so I might not see whisp 𓂃 𓈒𓏸‪‪ 𓇼🐙
  
  ||YES I'm joyful YES I'm  pure kindness 🐟.𖥔 ݁ ˖
  
