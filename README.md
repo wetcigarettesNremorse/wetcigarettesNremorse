@@ -17,18 +17,19 @@
  
  ||YES I'm joyful YES I'm  pure kindness 🐟.𖥔 ݁ ˖
  
- || c+h accepted!! just please don't RP. 🐠⋆˚࿔
+ || c+h accepted!! just please don't RP or copy . 🐠⋆˚࿔
 
  || YES you can become my oomf YES be my friend pls lawdd 🐳
 
 <img width="374" height="374" alt="17870024466558750889283306777412" src="https://github.com/user-attachments/assets/dba0934c-3d19-4b4f-a7eb-e37421f8a82f" />
 
 
- ||  Ari / el , she / her 🌀🎣
+ ||  $${\color{turquoise}Ari \space / \space  el \space , \space she \space / \space her 🌀🎣}$$
  
  || ADDICTED to Overwatch (esports is calling me omg) <img width="150" height="20" alt="17869954797637217009657916360671" src="https://github.com/user-attachments/assets/5c454ff3-ac72-45af-bae9-0bf29e3a3f80" /> 
 
-$${\color{cyan}❝ʀᴇᴠᴇʀꜱᴇ \space ᴛʜᴇ \space ᴛɪᴅᴇ!❞}$$
+$${\color{cyan}❝ʀᴇᴠ \space ᴇʀꜱᴇ \space ᴛʜᴇ \space ᴛɪᴅᴇ!❞}$$
+|| Socially awkward!! pls int 1st 
 
   <img width="370" height="215" alt="17869934618521455158862992377332" src="https://github.com/user-attachments/assets/bff3685b-95b5-499e-8224-1cd2f9bf86e2" />
 
