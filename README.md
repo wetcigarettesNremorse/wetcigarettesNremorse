@@ -29,18 +29,17 @@
  || ADDICTED to Overwatch (esports is calling me omg) <img width="150" height="20" alt="17869954797637217009657916360671" src="https://github.com/user-attachments/assets/5c454ff3-ac72-45af-bae9-0bf29e3a3f80" /> 
 
 $${\color{cyan}❝ʀᴇᴠ \space ᴇʀꜱᴇ \space ᴛʜᴇ \space ᴛɪᴅᴇ!❞}$$
-|| Socially awkward!! pls int 1st 
 
-  <img width="370" height="215" alt="17869934618521455158862992377332" src="https://github.com/user-attachments/assets/bff3685b-95b5-499e-8224-1cd2f9bf86e2" />
+|| Socially awkward!! pls int first 
+<img width="735" height="729" alt="1787015662576448530960596306739" src="https://github.com/user-attachments/assets/537ffb7a-2494-4060-adf9-04a393f7a62c" />
+
+  
 
  
   𝄞 [straw](https://youbettersignthis.straw.page/)🔱 [ata](https://doyoulikeyourtacoshardorsoft.atabook.org)⚓ <img width="99" height="56" alt="17869955599471374475763450822061" src="https://github.com/user-attachments/assets/90cb17a8-6999-4d54-b592-5a9a23a745eb" /> 
+ 
+  
+<img width="370" height="215" alt="17869934618521455158862992377332" src="https://github.com/user-attachments/assets/bff3685b-95b5-499e-8224-1cd2f9bf86e2" />
 
-  
-  
-  
 
-<img width="1280" height="123" alt="17869937999644816975762390537254" src="https://github.com/user-attachments/assets/d52b3956-aa4e-4ead-9c9e-ae499804b223" />
 <img width="498" height="225" alt="17870027616867393486224035087328" src="https://github.com/user-attachments/assets/18a0286c-32a3-4ea7-82db-95b111edb72e" />
-
-
