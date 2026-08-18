@@ -4,7 +4,7 @@
 
 <img width="374" height="211" alt="17870023390881531736256399643724" src="https://github.com/user-attachments/assets/7c5d3bac-cb2c-4bf4-8de4-18fef4e8cc71" />
  
-
+ $${\color{lightblue}Blink \space one \space twenty \space  🔛🔝!!}$$
 
 **꒰ঌ ໒꒱ - ᴡᴜʏᴀɴɢ/ᴊᴜɴᴏ ᴍᴀɪɴ🦈** 
 
