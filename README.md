@@ -4,9 +4,9 @@
 
 <p align="center"><img width="374" height="211" alt="17870023390881531736256399643724" src="https://github.com/user-attachments/assets/7c5d3bac-cb2c-4bf4-8de4-18fef4e8cc71" />
  
- <p align="center">$${\color{lightblue}Pierce \space the \space Veil \space  🔛🔝!!}$$
+ <p align="center"> $${\color{lightblue}Pierce \space the \space Veil \space  🔛🔝!!}$$
 
-<p align="center">**꒰ঌ ໒꒱ - ᴡᴜʏᴀɴɢ/ᴊᴜɴᴏ ᴍᴀɪɴ🦈** 
+<p align="center">꒰ঌ ໒꒱ - ᴡᴜʏᴀɴɢ/ᴊᴜɴᴏ ᴍᴀɪɴ🦈
 
 <p align="center"><a href="https://hits.sh/github.com/wetcigarettesNremorse/hits/"><img alt="Hits" src="https://hits.sh/github.com/wetcigarettesNremorse/hits.svg?style=for-the-badge&label=DMG%20mitigated&color=4e7a92&labelColor=007ec6"/></a>
 
