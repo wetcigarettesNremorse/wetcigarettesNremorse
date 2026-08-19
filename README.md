@@ -41,13 +41,24 @@
 <p align="center">|| $${\color{#2596be}\small \text {Socially awkward!! pls int first}}$$
 <p align="center"><img width="735" height="729" alt="1787015662576448530960596306739" src="https://github.com/user-attachments/assets/537ffb7a-2494-4060-adf9-04a393f7a62c" />
 
+
   ### links🐳
 
  
-  𝄞 [straw](https://youbettersignthis.straw.page/)🔱 [ata](https://doyoulikeyourtacoshardorsoft.atabook.org)⚓ [alt](https://github.com/PiercetheAri)🎼 [guns.lol](https://guns.lol/wetcigarettes)🐳 <p align="center"><img width="99" height="56" alt="17869955599471374475763450822061" src="https://github.com/user-attachments/assets/90cb17a8-6999-4d54-b592-5a9a23a745eb" /> 
+  𝄞 [straw](https://youbettersignthis.straw.page/)🔱 [ata](https://doyoulikeyourtacoshardorsoft.atabook.org)⚓ [alt](https://github.com/PiercetheAri)🎼 [guns.lol](https://guns.lol/wetcigarettes)🐳 <p align="center"><img width="201" height="114" alt="17871805032705465595670692180666" src="https://github.com/user-attachments/assets/561c914f-6f81-410b-ad58-6aa0a797855a" />
+
  
   <p align="center">$${\color{#fdfbc6}\huge \text {byee!!}}$$
 <img width="370" height="215" alt="17869934618521455158862992377332" src="https://github.com/user-attachments/assets/bff3685b-95b5-499e-8224-1cd2f9bf86e2" />
+   
+   <img width="99" height="56" alt="17871803265322046879760652516411" src="https://github.com/user-attachments/assets/8b37696c-6d15-4a3f-9774-c5793e79774d" />
+   
+   <img width="99" height="56" alt="17871803766251047847455628322812" src="https://github.com/user-attachments/assets/00f04d18-23c7-4ab2-9956-44b63f8287e8" />
+
+
+   <img width="99" height="56" alt="17869955599471374475763450822061" src="https://github.com/user-attachments/assets/90cb17a8-6999-4d54-b592-5a9a23a745eb" />
+
+
 
 
 <p align="center"><img width="498" height="225" alt="17870027616867393486224035087328" src="https://github.com/user-attachments/assets/18a0286c-32a3-4ea7-82db-95b111edb72e" />
