@@ -8,6 +8,11 @@
 
 **꒰ঌ ໒꒱ - ᴡᴜʏᴀɴɢ/ᴊᴜɴᴏ ᴍᴀɪɴ🦈** 
 
+<a href="https://hits.sh/github.com/wetcigarettesNremorse/hits/"><img alt="Hits" src="https://hits.sh/github.com/wetcigarettesNremorse/hits.svg?style=for-the-badge&label=DMG%20mitigated&color=4e7a92&labelColor=007ec6"/></a>
+
+^ embarrassing..
+      
+      
       ❝𝖥𝗅𝖺𝗌𝗁 𝖿𝗅𝗈𝗈𝖽!❞
 
 
