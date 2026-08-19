@@ -58,7 +58,7 @@
   𝄞 [straw](https://youbettersignthis.straw.page/)🔱 [ata](https://doyoulikeyourtacoshardorsoft.atabook.org)⚓ [alt](https://github.com/PiercetheAri)🎼 [guns.lol](https://guns.lol/wetcigarettes)🐳 <p align="center"><img width="201" height="114" alt="17871805032705465595670692180666" src="https://github.com/user-attachments/assets/561c914f-6f81-410b-ad58-6aa0a797855a" />
 
  
-  <p align="center">$${\color{#fdfbc6}\huge \text {byee!!}}$$
+  <p align="center">$${\color{#87CEEB}\huge \text {byee!!}}$$
 <img width="370" height="215" alt="17869934618521455158862992377332" src="https://github.com/user-attachments/assets/bff3685b-95b5-499e-8224-1cd2f9bf86e2" />
    
    <img width="99" height="56" alt="17871803265322046879760652516411" src="https://github.com/user-attachments/assets/8b37696c-6d15-4a3f-9774-c5793e79774d" />
