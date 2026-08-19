@@ -1,6 +1,7 @@
 # 🌊 online 
 <p align="center"><img width="768" height="51" alt="17869935105731772345105512823004" src="https://github.com/user-attachments/assets/d1ed8104-b2f5-4db2-b445-085e334d4171" />
 
+<p align="center"><img width="385" height="29" alt="17871821039406170946294014372199" src="https://github.com/user-attachments/assets/d327f68c-bf72-441a-9051-85cf3920a72d" />
 
 <p align="center"><img width="374" height="211" alt="17870023390881531736256399643724" src="https://github.com/user-attachments/assets/7c5d3bac-cb2c-4bf4-8de4-18fef4e8cc71" />
  
@@ -28,19 +29,28 @@
 
 <p align="center"><img width="374" height="374" alt="17870024466558750889283306777412" src="https://github.com/user-attachments/assets/dba0934c-3d19-4b4f-a7eb-e37421f8a82f" />
 
+<p align="center"><img width="400" height="32" alt="17871814882601424190313073794206" src="https://github.com/user-attachments/assets/83b25738-f16c-495e-bd9f-f4ce36e9284f" />
+
+
+ <p align="center"><img width="635" height="628" alt="17871829471255235053327036319521" src="https://github.com/user-attachments/assets/2be7f6e5-b007-4a7e-8940-2ebf607fed4b" />
+
+ <p align="center"><img width="736" height="736" alt="17871829742941399929693150507576" src="https://github.com/user-attachments/assets/0ceb0f63-0021-4d94-b1e3-4b1a4367959c" />
+
+ 
  ## info🐡
 
- <p align="center">||  $${\color{turquoise}\huge \text {Ari  /   el  ,  she  /  her 🌀🎣}}$$
+ <p align="center">||  $${\color{#4682B4}\huge \text {Ari  /   el  ,  she  /  her 🌀🎣}}$$
 
 <p align="center">|| $${\color{#2596be} \text {minor + enfp,  ₊˚⊹ᰔ🐚}}$$
  
- <p align="center">|| $${\color{turquoise} \text {ADDICTED to Overwatch (esports is calling me omg)}}$$ <p align="center"><img width="150" height="20" alt="17869954797637217009657916360671" src="https://github.com/user-attachments/assets/5c454ff3-ac72-45af-bae9-0bf29e3a3f80" /> 
+ <p align="center">|| $${\color{#4682B4} \text {ADDICTED to Overwatch (esports is calling me omg)}}$$ <p align="center"><img width="150" height="20" alt="17869954797637217009657916360671" src="https://github.com/user-attachments/assets/5c454ff3-ac72-45af-bae9-0bf29e3a3f80" /> 
 
-<p align="center">$${\color{cyan}❝ʀᴇᴠ \space ᴇʀꜱᴇ \space ᴛʜᴇ \space ᴛɪᴅᴇ!❞}$$
+<p align="center">$${\color{lightblue}❝ʀᴇᴠ \space ᴇʀꜱᴇ \space ᴛʜᴇ \space ᴛɪᴅᴇ!❞}$$
 
 <p align="center">|| $${\color{#2596be}\small \text {Socially awkward!! pls int first}}$$
 <p align="center"><img width="735" height="729" alt="1787015662576448530960596306739" src="https://github.com/user-attachments/assets/537ffb7a-2494-4060-adf9-04a393f7a62c" />
 
+<p align="center"><img width="400" height="32" alt="17871814882601424190313073794206" src="https://github.com/user-attachments/assets/83b25738-f16c-495e-bd9f-f4ce36e9284f" />
 
   ### links🐳
 
