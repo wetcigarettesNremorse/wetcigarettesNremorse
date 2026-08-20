@@ -45,7 +45,7 @@
  
  <p align="center">|| $${\color{#4682B4} \text {ADDICTED to Overwatch (esports is calling me omg)}}$$ <p align="center"><img width="150" height="20" alt="17869954797637217009657916360671" src="https://github.com/user-attachments/assets/5c454ff3-ac72-45af-bae9-0bf29e3a3f80" /> 
  
- <p align="center>|| [ponytown's Wuyang](https://github.com/cosplaytown)
+ || [Ponytown's Wuyang](https://github.com/cosplaytown)
 
 <p align="center">$${\color{lightblue}❝ʀᴇᴠ \space ᴇʀꜱᴇ \space ᴛʜᴇ \space ᴛɪᴅᴇ!❞}$$
 
