@@ -47,7 +47,7 @@
 
 <p align="center">$${\color{lightblue}❝ʀᴇᴠ \space ᴇʀꜱᴇ \space ᴛʜᴇ \space ᴛɪᴅᴇ!❞}$$
 
-<p align="center">|| $${\color{#2596be}\small \text {Socially awkward!! pls int first}}$$
+<p align="center">|| $${\color{#2596be}\small \text { i make kind of rude / mean jokes, if you aren't comfortable with this please lmk. Bad with certain social cues, I make mature/suggestive remarks often, Socially awkward!! pls int first}}$$
 <p align="center"><img width="735" height="729" alt="1787015662576448530960596306739" src="https://github.com/user-attachments/assets/537ffb7a-2494-4060-adf9-04a393f7a62c" />
 
 <p align="center"><img width="400" height="32" alt="17871814882601424190313073794206" src="https://github.com/user-attachments/assets/83b25738-f16c-495e-bd9f-f4ce36e9284f" />
