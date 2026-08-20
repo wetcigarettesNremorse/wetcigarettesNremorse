@@ -1,4 +1,4 @@
-# 🌊 on OW 
+# 🌊 on OW ︶︶
 <p align="center"><img width="768" height="51" alt="17869935105731772345105512823004" src="https://github.com/user-attachments/assets/d1ed8104-b2f5-4db2-b445-085e334d4171" />
 
 <p align="center"><img width="385" height="29" alt="17871821039406170946294014372199" src="https://github.com/user-attachments/assets/d327f68c-bf72-441a-9051-85cf3920a72d" />
@@ -37,7 +37,7 @@
  <p align="center"><img width="736" height="736" alt="17871829742941399929693150507576" src="https://github.com/user-attachments/assets/0ceb0f63-0021-4d94-b1e3-4b1a4367959c" />
 
  
- ## info🐡
+ ## info 🐡
 
  <p align="center">||  $${\color{#4682B4}\huge \text {Ari  /   el  ,  she  /  her 🌀🎣}}$$
 
@@ -58,7 +58,7 @@
 
 <p align="center"><img width="400" height="32" alt="17871814882601424190313073794206" src="https://github.com/user-attachments/assets/83b25738-f16c-495e-bd9f-f4ce36e9284f" />
 
-  ### links🐳
+  ### links 🐬 𓎢𓎠𓎟𓎠𓎡
 
  
   𝄞 [straw](https://youbettersignthis.straw.page/)🔱 [ata](https://doyoulikeyourtacoshardorsoft.atabook.org)⚓ [alt](https://github.com/PiercetheAri)🎼 [guns.lol](https://guns.lol/wetcigarettes)🐳 <p align="center"><img width="201" height="114" alt="17871805032705465595670692180666" src="https://github.com/user-attachments/assets/561c914f-6f81-410b-ad58-6aa0a797855a" />
