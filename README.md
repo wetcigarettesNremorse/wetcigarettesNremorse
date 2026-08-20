@@ -1,4 +1,4 @@
-# 🌊 offline ︶︶
+# 🌊 online ︶︶
 <p align="center"><img width="768" height="51" alt="17869935105731772345105512823004" src="https://github.com/user-attachments/assets/d1ed8104-b2f5-4db2-b445-085e334d4171" />
 
 <p align="center"><img width="385" height="29" alt="17871821039406170946294014372199" src="https://github.com/user-attachments/assets/d327f68c-bf72-441a-9051-85cf3920a72d" />
@@ -44,6 +44,8 @@
 <p align="center">|| $${\color{#2596be} \text {minor + enfp,  ₊˚⊹ᰔ🐚}}$$
  
  <p align="center">|| $${\color{#4682B4} \text {ADDICTED to Overwatch (esports is calling me omg)}}$$ <p align="center"><img width="150" height="20" alt="17869954797637217009657916360671" src="https://github.com/user-attachments/assets/5c454ff3-ac72-45af-bae9-0bf29e3a3f80" /> 
+ 
+ <p align="center>|| [ponytown's Wuyang](https://github.com/cosplaytown)
 
 <p align="center">$${\color{lightblue}❝ʀᴇᴠ \space ᴇʀꜱᴇ \space ᴛʜᴇ \space ᴛɪᴅᴇ!❞}$$
 
