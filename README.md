@@ -1,4 +1,4 @@
-# 🌊 offline︶︶
+# 🌊 online︶︶
 <p align="center"><img width="768" height="51" alt="17869935105731772345105512823004" src="https://github.com/user-attachments/assets/d1ed8104-b2f5-4db2-b445-085e334d4171" />
 
 <p align="center"><img width="385" height="29" alt="17871821039406170946294014372199" src="https://github.com/user-attachments/assets/d327f68c-bf72-441a-9051-85cf3920a72d" />
@@ -49,10 +49,12 @@
 
 <p align="center">$${\color{lightblue}❝ʀᴇᴠ \space ᴇʀꜱᴇ \space ᴛʜᴇ \space ᴛɪᴅᴇ!❞}$$
 
-<p align="center">|| $${\color{#2596be}\small \text { i make kind of rude / mean jokes, if you aren't comfortable with this please lmk.}}$$
+<p align="center">|| $${\color{#2596be }\small \text { i make kind of rude / mean jokes, if you aren't comfortable with this please lmk.}}$$
  
-<p align="center">|| $${\color{#259be}\small \text { Bad with certain social cues, 
- I make mature/suggestive remarks often, Socially awkward!! pls int first.}}$$
+<p align="center"> $${\color{#2596be}\small \text {Bad with certain social cues, 
+ I make mature/suggestive remarks often, and can have very intense mood swings.}}$$
+ 
+<p align="center"> $${\color{#2596be}\small \text{|| Socially awkward!! pls int first.}}$$
 
 
 <p align="center"><img width="736" height="552" alt="17871943971901079585039703177774" src="https://github.com/user-attachments/assets/91497ebf-1c20-4080-9f34-92689a0b191e" />
