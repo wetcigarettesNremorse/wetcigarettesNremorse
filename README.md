@@ -1,4 +1,4 @@
-# 🌊 on spotif / online ︶︶
+# 🌊 on spotif / offtab ︶︶
 <p align="center"><img width="768" height="51" alt="17869935105731772345105512823004" src="https://github.com/user-attachments/assets/d1ed8104-b2f5-4db2-b445-085e334d4171" />
 
 <p align="center"><img width="385" height="29" alt="17871821039406170946294014372199" src="https://github.com/user-attachments/assets/d327f68c-bf72-441a-9051-85cf3920a72d" />
