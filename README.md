@@ -65,7 +65,7 @@
   ### links 🐬 𓎢𓎠𓎟𓎠𓎡
 
  
-  𝄞 [straw](https://youbettersignthis.straw.page/)🔱 [ata](https://doyoulikeyourtacoshardorsoft.atabook.org)⚓ [alt](https://github.com/sexyrexyy)🎼 [guns.lol](https://guns.lol/wetcigarettes)🐳 [alt](https://github.com/heliophiliacursed) <p align="center"><img width="201" height="114" alt="17871805032705465595670692180666" src="https://github.com/user-attachments/assets/561c914f-6f81-410b-ad58-6aa0a797855a" />
+  𝄞 [straw](https://youbettersignthis.straw.page/)🔱 [ata](https://doyoulikeyourtacoshardorsoft.atabook.org)⚓ [alt](https://github.com/sexyrexyy)🎼 [guns.lol](https://guns.lol/wetcigarettes)🐳 [alt](https://github.com/heliophiliacursed) <p align="center"><img width="201" height="114" alt="17871805032705465595670692180666" src="https://github.com/user-attachments/assets/561c914f-6f81-410b-ad58-6aa0a797855a"[2nd straw](sunkissedlight.straw.page) />
 
  
   <p align="center">$${\color{#87CEEB}\huge \text {byee!!}}$$
