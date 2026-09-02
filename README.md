@@ -65,8 +65,8 @@
   ### links 🐬 𓎢𓎠𓎟𓎠𓎡
 
  
-  𝄞 [straw](https://sunkissedlight.straw.page)🔱 [ata](https://doyoulikeyourtacoshardorsoft.atabook.org)⚓ [alt](https://github.com/sexyrexyy)🎼 [guns.lol](https://guns.lol/wetcigarettes)🐳 [alt](https://github.com/heliophiliacursed) [2nd straw](https://youbettersignthis.straw.page/)<p align="center"><img width="201" height="114" alt="17871805032705465595670692180666" src="https://github.com/user-attachments/assets/561c914f-6f81-410b-ad58-6aa0a797855a"/>[Rentry DW themed](rentry.co/purplebunni)
-
+  𝄞 [straw](https://sunkissedlight.straw.page)🔱 [ata](https://doyoulikeyourtacoshardorsoft.atabook.org)⚓ [alt](https://github.com/sexyrexyy)🎼 [guns.lol](https://guns.lol/wetcigarettes)🐳 [alt](https://github.com/heliophiliacursed) [2nd straw](https://youbettersignthis.straw.page/)[Rentry DW themed](rentry.co/purplebunni)
+<p align="center"><img width="201" height="114" alt="17871805032705465595670692180666" src="https://github.com/user-attachments/assets/561c914f-6f81-410b-ad58-6aa0a797855a"/>
  
   <p align="center">$${\color{#87CEEB}\huge \text {byee!!}}$$
 <img width="370" height="215" alt="17869934618521455158862992377332" src="https://github.com/user-attachments/assets/bff3685b-95b5-499e-8224-1cd2f9bf86e2" />
